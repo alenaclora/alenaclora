@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... content seller and up for massage
 - 📫 How to reach me ...include my Dropbox link account login is for 
 ..all my sexy video was uploaded on it
-- 😄 Pronouns: ...
+- 😄 Pronouns: Her/She
 - ⚡ Fun fact: ... sexy video
 
 <!---
